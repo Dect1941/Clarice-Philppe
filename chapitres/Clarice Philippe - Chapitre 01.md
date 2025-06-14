@@ -12,7 +12,7 @@ Je réajuste ma ceinture et je suis Freddy. Mon regard se pose sur le bas de son
 
 Mais dès que nous sortons des toilettes mon sourire s'efface.
 
-Le Chef Kowalki, les mains dans le dos fait les cents pas dans l'allée de la galerie commerçante. Il me jette un regard noir et vérifie l'heure sa montre. 
+Le Chef Kowalski, les mains dans le dos fait les cents pas dans l'allée de la galerie commerçante. Il me jette un regard noir et vérifie l'heure sa montre. 
 
 — On est pas en randonné les tourtereaux ! 
 
@@ -20,30 +20,35 @@ Et, s'adressant à Freddy,
 
 — Tu diras à la stagiaire qu'elle nous ralenti.
 
-Je boue ! J'existe non ? Ca te coûterai de m'adresser la parole ? Ou ka fè blan-la ! 
+Ou ka fè blan-la ! Je boue ! J'existe non ? Ca te coûterai de m'adresser la parole ? 
 
 Et sans attendre, il se dirige vers la sortie de la galerie commerciale. Freddy trottine pour le rejoindre.
 
 Maintenant, j'en suis certaine, ça le met mal à l'aise que je sois plus grande que lui.
 
-On passe devant une boutique de parfum où des petites nanas toutes plus mignonnes les unes que les autres se pressent. Je me demande si Freddy les regardes... Comment peuvent elles rester plus de cinq minutes là dedans. Les odeurs mélangés des produits cosmétiques me donnent déjà mal à la tête. J'ai ma réponse deux secondes plus tard quand la tête de Freddy se tourne pour suivre une fille en jean taille basse et top crop rose. Je m'imagine dans la même tenue... Impossible, ça ne rendrait pas pareil... avec mon physique de catcheuse. De toute façon dès qu'un bout de chair dépasse je le cache. Et de la chair à cacher, j'en ai.
+On passe devant une boutique de parfum où des petites nanas toutes plus mignonnes les unes que les autres se pressent. Je me demande si Freddy les regardes... Comment peuvent elles rester plus de cinq minutes là dedans. Les odeurs des produits cosmétiques se mélangent et me donnent mal à la tête. J'ai ma réponse deux secondes plus tard. La tête de Freddy se tourne pour suivre une fille en jean taille basse et en brassière rose fluo. Je m'imagine dans la même tenue... Impossible, ça ne rendrait pas pareil... avec mon physique de catcheuse. D’ailleurs j'adore le catch. J'aurais bien aimé pratiquer. Mais impossible pour moi de me produire en public avec une tenue de catcheuse. Je suis bien trop pudique. Dès qu'un bout de chair dépasse je le cache.
 
-Kovalski avance comme si il était en marche commando avec ses anciens copains bérets verts dont il nous rabâche les exploits au Mali. Je m'attend à ce qu'il entame un chant militaire. Il y a un peu de monde dans la galerie. Les clients s'écartent devant nous. Sauf un petit garçon de deux ou trois ans qui percute Kowalski. L'enfant rebondit sur la jambe de mon collège et retombe sur ses fesses. Kowalski se fige. Il tend sa main vers le petit qui le regarde.
+Kovalski avance comme si il était en marche commando avec ses anciens copains bérets verts dont il nous rabâche les exploits au Mali. Je m'attend à ce qu'il entame un chant militaire. Ca lui arrive parfois. Il y a un peu de monde dans la galerie, forcément, c'est samedi. Les clients s'écartent devant nous. Sauf un petit garçon de deux ou trois ans qui percute Kowalski. L'enfant rebondit sur sa jambe et retombe sur ses petites fesses. Kowalski s'immobilise. Il tend sa main vers le petit qui le regarde.
 
-— Autant pour moi.
+Il va lui demander ses papiers ?
 
 Les deux, l'enfant et Kowalski s'observent un moment avant que la maman ne récupère son bambin. L'incident terminé, notre chef de patrouille s'adresse à Freddy.  
 
 — Contrôle du stationnement dans le centre ville.
-— Maintenant, mais ça tombe sévère dehors ? Demande Freddy.
+
+— Maintenant ? Mais ça tombe sévère dehors ? Demande Freddy.
+
 — C'est samedi, les civils se garent n'importe comment, et surtout quand il pleut. 
- On se dépêche. Elle va peut-être pouvoir se rendre utile la stagiaire ajoute-t-il.
+
+— On se dépêche. Elle va peut-être pouvoir se rendre utile la stagiaire ajoute-t-il.
 
 J'aimerai que Freddy me défende. Mais c'est compliqué pour lui, c'est son chef. Moi le stage fini, je ne le verrais plus ce frustré de Kowalski.
 
-Devant le KFC, la radio du Chef Kowalski grésille. Ca sent le poulet fri. Mon estomac gargouille. Sur un banc un couple de collégien partage des morceaux de poulets. Et si on se faisait un menu Bucket Tender ce soir nous aussi ? Kovalski saisit le micro-épaule fixé à l’épaulette de son gilet pare-balles.
+Devant le KFC, la radio du Chef Kowalski grésille. Ca sent le poulet fri. Mon estomac gargouille. Sur un banc, un couple de collégien partage des morceaux de poulets. Et si on se faisait un menu bucket tender ce soir nous aussi ? 
 
-— PC de Roméo 2, parlez.
+Kovalski saisit le micro-épaule fixé à l’épaulette de son gilet pare-balles.
+
+— PC à Roméo 2, parlez.
 
 Ca me fait toujours sourire que l'indicatif de Kovalski soit Roméo...
 
@@ -55,21 +60,21 @@ Silence. Ca dur... une, deux, trois secondes.
 
 — Roméo 2 à PC, répétez ?
 
-A l'autre bout du micro, j'ai reconnu sa voix. C'est l'adjudant Lacave... Et il porte plutôt bien son nom. La première fois que je l'ai vu, mon tuteur, il cuvait dans la réserve à fourniture administrative de l'antenne de la Police municipale. Je retiens un sourire. Mais je l’apprécie, Lacave, il est correcte avec moi, toujours un mot gentil, il m'apprend des choses. Freddy m'a raconté que la marque en forme de losange qu'il a sur le front est du à une chutte. Ivre, sa tête a heurté un radiateur dont la poignée avait été retiré. Ca me fait toujours des picotements sur le front quand j'y pense. 
+A l'autre bout du micro, j'ai reconnu sa voix. C'est l'adjudant Lacave... Et il porte plutôt bien son nom Jean-Pierre Lacave. La première fois que je l'ai vu, mon tuteur, il cuvait dans la réserve à fourniture administrative de l'antenne de la Police municipale, assis sur une chaise en formica, la tête appuyée contre le mur. Je retiens un sourire. Mais je l’apprécie, Lacave, il est correcte avec moi, toujours un mot gentil, il m'apprend des choses. Freddy m'a raconté que la marque en forme de losange qu'il a au milieu du front est du à une chutte. Ivre, sa tête a heurté un radiateur dont la poignée avait été retiré. Ca me fait toujours des picotements sur le front quand j'y pense. 
 
-L'horloge de la pharmacie d'en face indique seize heure, forcément il commence à chercher ses mots l'adjudant Lacave.
+L'horloge de la pharmacie d'en face indique seize heure.  Forcément il commence à chercher ses mots l'adjudant Lacave à cette heure là.
 
 La radio émet un petit son et l'adjudant reprend.
 
-—  Signalement d’une rixe en cours niveau 1, proche de Dead End Gaming... 
+— Signalement d’une rixe en cours niveau 1, proche de Dead... End... Gaming... 
 
-Je vois bien que Kovalsky ne percute pas. Il interroge du regard Freddy. C'est pourtant à la une du journal municipal du mois, l’inauguration ! Il ne sait peut-être pas lire Kowalski apres tout. Même que ça a fait un peu de bruit en ville. Pendant notre premier rendez-vous, au bar le Balto avec Freddy, un gars de la voirie, un copain à lui qui nous tenait la jambe a raconté que le propriétaire de l'espace de jeu, était un descendant du directeur de l'ancien hôpital psychiatrique pour homme de Saint-Alié que la maire a fait réhabilité il y a deux ans pour construire cette galerie commerciale. L'établissement avait été fermé au siècle dernier après qu'on ai découvert que des patients avaient disparus. Pendant les travaux ont aurait retrouvé des ossements humains. 
+Je vois bien que Kovalsky ne percute pas. Il interroge du regard Freddy. C'est pourtant à la une du journal municipal du mois, l’inauguration ! Il ne sait peut-être pas lire Kowalski apres tout. Même que ça a fait un peu de bruit en ville. Pendant notre premier rendez-vous, au bar le Balto avec Freddy, un gars de la voirie, un copain à lui qui nous tenait la jambe a raconté que le propriétaire de l'espace de jeu, était un descendant du directeur de l'ancien hôpital psychiatrique pour homme de Saint-Alié que la maire a fait réhabiliter il y a deux ans pour construire cette galerie commerciale. L'établissement avait été fermé au siècle dernier après qu'on ai découvert que des patients avaient disparus. Pendant les travaux ont aurait retrouvé des dizaines d'ossements humains. 
 
-— Le truc de jeu video qui vient d'ouvrir, murmure Freddy en mimant comme si il jouait avec la manette de sa Xbox.
+— Le truc de jeu video qui vient d'ouvrir, murmure Freddy en mimant comme si il jouait avec la manette de sa console Xbox à Dead Island 2.
 
-— Roméo 2 Vous... vous confinez... confirmez la situation ?
+— Roméo 2 Vous... vous confinez... heu confirmez la situation ?
 
-— Affirmatif, PC. Nous sommes sur place dans deux minutes. Trois... deux agents sur zone.
+— Affirmatif, PC. Nous sommes sur place dans deux minutes. Trois... correction.. deux agents sur zone.
 
 Comment ça deux agents ? Et moi ?
 

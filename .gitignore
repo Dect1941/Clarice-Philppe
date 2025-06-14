@@ -3,6 +3,9 @@ références/
 brouillons/
 export/
 flocon/
+notes/
+# Ne pas suivre les fichiers de configuration locaux
+config_local.json   
 
 # Fichiers système
 .DS_Store
