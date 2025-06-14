@@ -1,0 +1,14 @@
+# Ne pas suivre les dossiers sensibles ou temporaires
+références/
+brouillons/
+export/
+flocon/
+
+# Fichiers système
+.DS_Store
+Thumbs.db
+
+# Fichiers de sauvegarde
+*.tmp
+*.bak
+~$*
