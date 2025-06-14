@@ -1,6 +1,6 @@
 # Chapitre 1
 
-Vendredi 13 novembre, 15:37, Saint-Alié, Galerie commerciale Sainte-Corneille.
+***Vendredi 13 novembre, 15:37, Saint-Alié, Galerie commerciale Sainte-Corneille.***
 
 Je range l'injecteur d'insuline dans la poche de mon uniforme. Je sorts et retrouve Freddy. Il m'attend dans le couloir qui mène aux toilettes. Il n'a pas l'air content.
 
@@ -14,7 +14,7 @@ Je réajuste ma ceinture et je suis Freddy. Mon regard se pose sur le bas de son
 
 Mais dès que nous sortons des toilettes mon sourire s'efface.
 
-Le Chef Kowalski, les mains dans le dos fait les cents pas dans l'allée de la galerie commerçante. Il me jette un regard noir et vérifie l'heure sa montre. 
+Le Chef Kowalski, les mains dans le dos fait les cents pas dans l'allée de la galerie commerciale. Il me jette un regard noir et vérifie l'heure sa montre. 
 
 — On est pas en randonné les tourtereaux ! 
 
@@ -30,7 +30,7 @@ Maintenant, j'en suis certaine, ça le met mal à l'aise que je sois plus grande
 
 On passe devant une boutique de parfum où des petites nanas toutes plus mignonnes les unes que les autres se pressent. Je me demande si Freddy les regardes... Comment peuvent elles rester plus de cinq minutes là dedans. Les odeurs des produits cosmétiques se mélangent et me donnent mal à la tête. J'ai ma réponse deux secondes plus tard. La tête de Freddy se tourne pour suivre une fille en jean taille basse et en brassière rose fluo. Je m'imagine dans la même tenue... Impossible, ça ne rendrait pas pareil... avec mon physique de catcheuse. D’ailleurs j'adore le catch. J'aurais bien aimé pratiquer. Mais impossible pour moi de me produire en public avec une tenue de catcheuse. Je suis bien trop pudique. Dès qu'un bout de chair dépasse je le cache.
 
-Kovalski avance comme si il était en marche commando avec ses anciens copains bérets verts dont il nous rabâche les exploits au Mali. Je m'attend à ce qu'il entame un chant militaire. Ca lui arrive parfois. Il y a un peu de monde dans la galerie, forcément, c'est samedi. Les clients s'écartent devant nous. Sauf un petit garçon de deux ou trois ans qui percute Kowalski. L'enfant rebondit sur sa jambe et retombe sur ses petites fesses. Kowalski s'immobilise. Il tend sa main vers le petit qui le regarde.
+Kovalski avance comme si il était en marche commando avec ses anciens copains bérets verts dont il nous rabâche les exploits au Mali. Je m'attend à ce qu'il entame un chant militaire. Ca lui arrive parfois. Il y a un peu de monde dans la galerie, forcément, c'est samedi. Les clients s'écartent devant nous. Sauf un petit garçon de deux ou trois ans qui percute Kowalski. L'enfant rebondit sur sa jambe et retombe sur ses petites fesses. C'est pratique les couches. Kowalski s'immobilise. Il tend sa main vers le petit qui le regarde.
 
 Il va lui demander ses papiers ?
 
@@ -62,15 +62,19 @@ Silence. Ca dur... une, deux, trois secondes.
 
 — Roméo 2 à PC, répétez ?
 
-A l'autre bout du micro, j'ai reconnu sa voix. C'est l'adjudant Lacave... Et il porte plutôt bien son nom Jean-Pierre Lacave. La première fois que je l'ai vu, mon tuteur, il cuvait dans la réserve à fourniture administrative de l'antenne de la Police municipale, assis sur une chaise en formica, la tête appuyée contre le mur. Je retiens un sourire. Mais je l’apprécie, Lacave, il est correcte avec moi, toujours un mot gentil, il m'apprend des choses. Freddy m'a raconté que la marque en forme de losange qu'il a au milieu du front est du à une chutte. Ivre, sa tête a heurté un radiateur dont la poignée avait été retiré. Ca me fait toujours des picotements sur le front quand j'y pense. 
+A l'autre bout du micro, j'ai reconnu sa voix. C'est l'adjudant Lacave... Le responsable de la police municipale de la ville. Et il porte plutôt bien son nom Jean-Pierre Lacave. La première fois que je l'ai vu, mon tuteur, il cuvait dans la réserve à fourniture administrative de l'antenne de la Police municipale, assis sur une chaise en formica, la tête appuyée contre le mur. Je retiens un sourire. Mais je l’apprécie, Lacave, il est correcte avec moi, toujours un mot gentil, il m'apprend des choses. Freddy m'a raconté que la marque en forme de losange qu'il a au milieu du front est du à une chutte. Ivre, sa tête a heurté un radiateur dont la poignée avait été retiré. Ca me fait toujours des picotements sur le front quand j'y pense. 
 
 L'horloge de la pharmacie d'en face indique seize heure.  Forcément il commence à chercher ses mots l'adjudant Lacave à cette heure là.
 
 La radio émet un petit son et l'adjudant reprend.
 
-— Signalement d’une rixe en cours niveau 1, proche de Dead... End... Gaming... 
+— Signalement d’une rixe en cours niveau 1, proche de Dide ende gaminge
 
-Je vois bien que Kovalsky ne percute pas. Il interroge du regard Freddy. C'est pourtant à la une du journal municipal du mois, l’inauguration ! Il ne sait peut-être pas lire Kowalski apres tout. Même que ça a fait un peu de bruit en ville. Pendant notre premier rendez-vous, au bar le Balto avec Freddy, un gars de la voirie, un copain à lui qui nous tenait la jambe a raconté que le propriétaire de l'espace de jeu, était un descendant du directeur de l'ancien hôpital psychiatrique pour homme de Saint-Alié que la maire a fait réhabiliter il y a deux ans pour construire cette galerie commerciale. L'établissement avait été fermé au siècle dernier après qu'on ai découvert que des patients avaient disparus. Pendant les travaux ont aurait retrouvé des dizaines d'ossements humains. 
+Dide ende... Ca ne me dit rien du tout c'est cette boutique... Ah.. d'accord !
+
+— Dead End Gaming, je répète avec mon meilleur accent anglais.
+
+Je vois bien que Kovalsky ne percute pas. Il interroge du regard Freddy. C'est pourtant à la une du journal municipal du mois, l’inauguration ! Il ne sait peut-être pas lire Kowalski après tout. Même que ça a fait un peu de bruit en ville. Pendant notre premier rendez-vous, au bar le Balto avec Freddy, un gars de la voirie, un copain à lui qui nous tenait la jambe nous a raconté que le propriétaire de l'espace de jeu, était un descendant du directeur de l'ancien hôpital psychiatrique pour homme de Saint-Alié, que la maire a fait réhabiliter il y a trois ans pour construire cette galerie commerciale. L'établissement avait été fermé au siècle dernier après qu'on ai découvert que des patients avaient disparus. Pendant les travaux des gars du chantier auraient retrouvé des dizaines d'ossements humains. 
 
 — Le truc de jeu video qui vient d'ouvrir, murmure Freddy en mimant comme si il jouait avec la manette de sa console Xbox à Dead Island 2.
 
