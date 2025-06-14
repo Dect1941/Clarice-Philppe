@@ -28,7 +28,11 @@ Maintenant, j'en suis certaine, ça le met mal à l'aise que je sois plus grande
 
 On passe devant une boutique de parfum où des petites nanas toutes plus mignonnes les unes que les autres se pressent. Je me demande si Freddy les regardes... Comment peuvent elles rester plus de cinq minutes là dedans. Les odeurs mélangés des produits cosmétiques me donnent déjà mal à la tête. J'ai ma réponse deux secondes plus tard quand la tête de Freddy se tourne pour suivre une fille en jean taille basse et top crop rose. Je m'imagine dans la même tenue... Impossible, ça ne rendrait pas pareil... avec mon physique de catcheuse. De toute façon dès qu'un bout de chair dépasse je le cache. Et de la chair à cacher, j'en ai.
 
-Kovalski avance comme si il était en marche commando avec ses anciens copains bérets verts dont il nous rabâche les exploits au Mali. Je m'attend à ce qu'il entame un chant militaire. Il y a un peu de monde dans la galerie. Les clients s'écartent devant nous. Sauf un petit de trois ans qui percute Kowalski qui se fige. Les deux, l'enfant et Kowalski s'observent un moment avant que la maman ne récupère son bambin. L'incident terminé, notre chef de patrouille s'adresse à Freddy.  
+Kovalski avance comme si il était en marche commando avec ses anciens copains bérets verts dont il nous rabâche les exploits au Mali. Je m'attend à ce qu'il entame un chant militaire. Il y a un peu de monde dans la galerie. Les clients s'écartent devant nous. Sauf un petit garçon de deux ou trois ans qui percute Kowalski. L'enfant rebondit sur la jambe de mon collège et retombe sur ses fesses. Kowalski se fige. Il tend sa main vers le petit qui le regarde.
+
+— Autant pour moi.
+
+Les deux, l'enfant et Kowalski s'observent un moment avant que la maman ne récupère son bambin. L'incident terminé, notre chef de patrouille s'adresse à Freddy.  
 
 — Contrôle du stationnement dans le centre ville.
 — Maintenant, mais ça tombe sévère dehors ? Demande Freddy.
