@@ -1,6 +1,6 @@
 ---
 layout: default
-title: Clarice Philippe
+title: Index
 ---
 
 # Clarice Philippe

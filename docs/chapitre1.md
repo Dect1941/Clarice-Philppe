@@ -1,6 +1,6 @@
 ---
 layout: default
-title: Clarice Philippe
+title: Chapitre 1
 ---
 
 # Chapitre 1
