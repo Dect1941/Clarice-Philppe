@@ -1,3 +1,8 @@
+---
+layout: default
+title: Clarice Philippe
+---
+
 # Chapitre 1
 
 ***Vendredi 13 novembre, 15:37, Saint-Alié, Galerie commerciale Sainte-Corneille.***
@@ -22,7 +27,7 @@ Et, s'adressant à Freddy,
 
 — Tu diras à la stagiaire qu'elle nous ralenti.
 
-Ou ka fè blan-la ! Je boue ! J'existe non ? Ca te coûterai de m'adresser la parole ? 
+Fèmé guel aw ! Je boue... J'existe non ? Ca te coûterai de m'adresser la parole ? 
 
 Et sans attendre, il se dirige vers la sortie de la galerie commerciale. Freddy trottine pour le rejoindre.
 
@@ -94,7 +99,7 @@ Kowalski raccroche le micro, le visage fermé.
 
 — La stagiaire reste là, on y va.
 
-Mais mon chéri intervient.
+Mais mon doudou intervient.
 
 — Mais Chef... On a pas le droit de la laisser seule.
 
