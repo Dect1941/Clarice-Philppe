@@ -2,7 +2,7 @@ Vendredi 13 novembre, 15:37, Saint-Alié, Galerie commerciale Sainte-Corneille.
 
 Je range l'injecteur d'insuline dans la poche de mon uniforme. Je sorts et retrouve Freddy. Il m'attend dans le couloir qui mène aux toilettes. Il n'a pas l'air content.
 
-—  Qu'est ce que tu as ? 
+—  Qu'est ce que tu as ?
 
 —  'Tain Clarice, T'en a mis du temps. Dépèche, le Chef attend. 
 
