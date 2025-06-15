@@ -6,7 +6,7 @@ title: Chapitre 1
 # Chapitre 1
 
 ***Vendredi 13 novembre, 15:37, Saint-Alié, Galerie commerciale Sainte-Corneille.***
-
+---
 Je range l'injecteur d'insuline dans la poche de mon uniforme. Je sorts et retrouve Freddy. Il m'attend dans le couloir qui mène aux toilettes. Il n'a pas l'air content.
 
 — Qu'est ce que tu as ?
@@ -69,7 +69,7 @@ Silence. Ca dur... une, deux, trois secondes.
 
 A l'autre bout du micro, j'ai reconnu sa voix. C'est l'adjudant Lacave... Le responsable de la police municipale de la ville. Et il porte plutôt bien son nom Jean-Pierre Lacave. La première fois que je l'ai vu, mon tuteur, il cuvait dans la réserve à fourniture administrative de l'antenne de la Police municipale, assis sur une chaise en formica, la tête appuyée contre le mur. Je retiens un sourire. Mais je l’apprécie, Lacave, il est correcte avec moi, toujours un mot gentil, il m'apprend des choses. Freddy m'a raconté que la marque en forme de losange qu'il a au milieu du front est du à une chutte. Ivre, sa tête a heurté un radiateur dont la poignée avait été retiré. Ca me fait toujours des picotements sur le front quand j'y pense. 
 
-L'horloge de la pharmacie d'en face indique seize heure.  Forcément il commence à chercher ses mots l'adjudant Lacave à cette heure là.
+L'horloge de la pharmacie d'en face indique seize heure.  Forcément, il commence à chercher ses mots l'adjudant Lacave à cette heure là.
 
 La radio émet un petit son et l'adjudant reprend.
 
@@ -122,4 +122,4 @@ On entend des cris en provenance du premier niveau. Des clients s'arrêtent et r
 Mes collègues accélèrent. Le Chef et Freddy ont leurs mains posées sur leurs matraques et leurs armes de défense. Moi, vu que je suis la stagiaire Agent de Surveillance de la Voie Publique, je n'ai rien. 
 
 Nous arrivons au bas de l'escalator. Soudain un hurlement retenti. Je me fige. Un frisson d’effrois parcours ma colonne vertébrale. Le chef et Freddy posent leurs mains sur leurs armes. Les gens que nous croisons se mettent à courir. Un couple devant nous tente de descendre l’escalator en sens inverse. Arrivés à ma hauteur, Ils me bousculent. Au même moment, l'escalier mécanique s'immobilise. Je vacille avant de perdre mon équilibre. Aie ! Je me blesse aux mains en me rattrapant aux marches métalliques. Je me relève, mes paumes sont écorchées, tandis que le chef prend sa radio. Je n'entend pas ce qu'il dit. Le brouhaha qui descend du premier étage est infernale. Sur ma gauche, un bruit sourd me fait sursauté. J'aperçois le corps sans vie d'une femme. Elle a sauté du premier étage ? Pourquoi ? Je croise le regard de Freddy. Je le fréquente que depuis quelques jours, mais je suis surprise. Je ne lui connaissait pas ce regard. Il a peur. Au dessus de ma tête, j'entends des bruits de chaises qui se renversent, des cris, des grognements inhumain et des hurlements de femmes, des gens qui courent. Je fais un pas en arrière. Mais l'escalator se remet en marche. Il nous entraîne vers le niveau 1. Nous avançons. Le Chef sort son arme à feu..
-    
+  ---  
